@@ -1,0 +1,2 @@
+# premium-vermeil-plate-001-vermeil-gold-plating-silver
+Tired of your gold-plated jewelry turning brassy or flaking off after a few wears? The secret isn't thicker gold—it's the silver base preparation and plating precision.  This hub is your complete roadmap to creating museum-quality vermeil pieces using a silver base and precise gold plating techniques. It solves the common pain points of adhesion fa
